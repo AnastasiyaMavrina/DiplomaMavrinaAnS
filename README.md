@@ -1,3 +1,3 @@
 # DiplomaMavrinaAnS
 дипломная работа
-https://docs.google.com/forms/d/1kpNN5nyFYDKNSc8kl_oKPRCCxopS-Brqk6eFBNwkORg/edit
+https://docs.google.com/forms/d/e/1FAIpQLSdrPFTK6itEs_VALo3sJui1zrTMwe6KgLSAAZKSICo-v1tRJg/viewform?usp=sf_link
